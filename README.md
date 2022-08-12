@@ -1,4 +1,4 @@
-I started learning Java , I like this language 
+I started learning Java , I like this language.
 I'm looking collaborate ...  If you want to  learn java together ,  then write to me in telegram . Phone number : +380685596171 Username : @maksim_vornik
 
 
